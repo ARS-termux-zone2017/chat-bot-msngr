@@ -3,10 +3,8 @@
 ❖ **`A Massanger  Multi Device Bot To Take Your Massanger To Another Level !`** ❖
 
 ----------
-## CLICK <a href="https://www.youtube.com/@Cyberbotcommunity">HERE IF YOU ARE NEW TO BOTS (YOUTUBE)</a>
-
-
-<img src='https://i.imgur.com/ePDUcck.jpeg'/>
+## CLICK <a href="
+<img src=''/>
 
 -------
 
